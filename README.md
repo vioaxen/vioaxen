@@ -1,7 +1,7 @@
 ### Hi 👋
 
-#№21 years old
+##21 years old
 
-#№First year student
+##First year student
 
 
